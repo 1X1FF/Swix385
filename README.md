@@ -1,8 +1,3 @@
-Im cool kid
-I paste a bunch of fortnite shit
-am just cool
+1X1FF#1248
 
-Pasta Monky#3159
-
-^^^^^
-discord
+For questions add that user on discord
